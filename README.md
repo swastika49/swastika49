@@ -6,4 +6,4 @@ And interested in artificial intelligence and automation
 
 Looking forward to collaborate on projects related to my interests
 
-Reach me at swastika.tikader.official@gmail.com
+Reach me at swastika7tikader@gmail.com
